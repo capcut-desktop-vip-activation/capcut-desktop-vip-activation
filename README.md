@@ -1,0 +1,1 @@
+# capcut-desktop-vip-activation
